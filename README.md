@@ -17,6 +17,14 @@ Group 5
 ===
 
 Group 6
+Tony Tan
+Anika Zatschler
+Ben McKinnon
+Cartier Zhi
+Duong Thuc Nguyen
+Mingpeng
+Sara O'Brien
+
 ===
 
 Group 7
